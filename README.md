@@ -15,6 +15,6 @@ https://trello.com/invite/b/67af8cc7be2a083c5349fd37/ATTI9f07cc775b84fa7d17c3f9b
 - [Joselyn Reyna Contreras](https://github.com/Jossrec)  
 - [Joirid Juarez Salinas](https://github.com/Joirid)  
 - [Luis Ernesto Guzman del Angel](https://github.com/LEDGAngel)
-- [César Antonio Martínez Vilchís](https://github.com/A01236306)
+- [César Antonio Martínez Vilchís](https://github.com/V1lch1s)
   
 
